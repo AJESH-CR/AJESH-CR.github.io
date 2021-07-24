@@ -1,3 +1,0 @@
-# PERSONAL BLOG
-
-### Coming soon !
